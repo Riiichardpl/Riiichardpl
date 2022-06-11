@@ -1,0 +1,4 @@
+-  Hi, I’m @Riiichardpl
+- I’m interested in learning how to code on java, mac apps, and web developing 
+- I’m looking to collaborate on any project
+- you can reach me by via mail: richardorp1402@gmail.com
